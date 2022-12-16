@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GerianD
-- 👀 I’m interested in marketing, programming, sport
+- 👀 I’m interested in marketing, programming and sport
 - 🌱 I’m currently learning at school
 - 📫 How to reach me contact@gerian.eu
 
